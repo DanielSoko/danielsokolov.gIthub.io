@@ -1,1 +1,0 @@
-# danielsokolov.gIthub.io
